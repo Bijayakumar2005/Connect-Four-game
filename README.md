@@ -85,3 +85,7 @@ Add game history and statistics
 
 
 Enjoy the game! 🎉
+
+
+
+Author - Bijaya Kumar Rout
