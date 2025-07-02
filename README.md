@@ -88,4 +88,6 @@ Enjoy the game! 🎉
 
 
 
-Author - Bijaya Kumar Rout       Phone No- 7846805747
+
+Author - Bijaya Kumar Rout  Email - bijayakumarrout2005@gmail.com
+
